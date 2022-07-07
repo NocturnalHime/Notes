@@ -1,5 +1,5 @@
 # The Law of Attraction
 
 - Your thoughts become things. 
-- this is 
+- this is a new line 
 
